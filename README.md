@@ -1,1 +1,1 @@
-EffZeemana
+zeeman
